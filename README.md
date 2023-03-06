@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @𝐜𝐨𝐝𝐞-𝐁𝐡𝐚𝐧𝐝𝐚𝐫𝐢
+- 👋 Hi, I’m @ꜱʜɪꜱʜᴀɴᴛ ʙʜᴀɴᴅᴀʀɪ
 - 👀 I’m interested in 𝕨𝕖𝕓 - 𝕔𝕠𝕕𝕖 - 𝔻𝕖𝕤𝕚𝕘𝕟𝕚𝕟𝕘
 - 🌱 MASTER OF COMPUTER APPLICATION (IN MY FINAL's) 
 - 💞️ I’m looking to collaborate on web atthens
