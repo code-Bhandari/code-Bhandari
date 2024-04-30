@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **shishantb079@gmail.com**
 
-- ⚡ Fun fact **Jo dikhta Hai Voh hota Nahi Hai..**
+- ⚡ Fun fact **mein bss Seekh raha hoon..**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
